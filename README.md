@@ -1,4 +1,4 @@
-# Rôberth Kauã
+# Rôberth Kauã Diniz
 ### Graduando em Ciência da Computação | UFMA
 
 São Luís, Maranhão, Brasil
